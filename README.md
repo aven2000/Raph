@@ -9,6 +9,8 @@
 
 - 🤝 I’m looking for help with **WEB3 Blockchain**
 
+- This is my portfolio: https://raphaelbarasa.github.io/portfolio/home.html
+
 - 📫 How to reach me **raphaelbarasa01@gmail.com**
 
 - ⚡ Fun fact **i love Adobe**
